@@ -1,4 +1,15 @@
 # Induction-_report
+Day1 
+8:30 to 9:30 college gurdwara Sahib all teachers and students are present in shabd kirtan 
+9:30 to  10:30 refreshment in college hostel.
+10:30 to 1:30 college auditorium .ther is great program . college principal Dr sehjpal singh the valueable word shared about college and the chef guest in the program is rakesh kumar ( municipal corporation )
+2nd chef guest is ravinder gerg they speak about GNDEC college.
+afte the half an break. all teachers visit for students in college and guide by college .this is very amazing day .
+
+4:00pm we leave the college 
+
+
+
 #day 2
 ##9:30am to 10:30 english proficiencytedt for all students
 ### 10:30 to 11;30 math proficiency test for all students 
