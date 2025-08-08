@@ -65,3 +65,20 @@ Day6
 2:30to 4:00 lecture by lakhbir singh(incharge CML)tells various activities helid  in club and it is different from other societies and clubs.there are only students which are serious that they should. improve themselves only  that students should join .they talk about lecture by swayam app that you can go and do the interested course and get certificate.
 
 4:20pm we leave the college 
+
+DAY7
+
+9:30 to 10;30 lecture by Dr Amit kamra (incharge DMC)in Auditorium . he told about  digital marketing what is it .how it help us in our life.it is not a subject  only the interest of students in creative writing and design , graphics and visual contact , email campaign , social media contact and any other activities.iy is enjoyable for students and students can make carrier in it .
+
+10:30 to 11:30 _lecture by Dr parminder singh ( dean students welfare) in Auditorium .
+
+
+11:30 to 12:30 lecture by Dr Randhir Singh on examination and other quirees. they told about college rules and fee structure and any other information. 
+
+12:30 to 1:30 _break 
+
+1:30 to 2:30 chemistry lecture by Dr Rajvir kaur 
+
+2:30 to 3:30 p2p by our seniors 
+ 
+3:30 we leave the college 
